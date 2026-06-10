@@ -1,1 +1,0 @@
-# knyga-life-redirect
